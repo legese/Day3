@@ -15,4 +15,9 @@ Today is best than 2morrow
 
 i just say thank you for your help 
 
-and love you ever and ever 
+and love you ever and ever
+
+==========================
+12/29/2016
+
+NTUST Respect 

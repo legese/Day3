@@ -25,3 +25,9 @@ NTUST Respect
 
 ===========================
 love ya
+
+888888888888888888888888888
+
+JANUARY 23 2017 
+
+Welcome back  

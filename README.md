@@ -30,4 +30,9 @@ love ya
 
 JANUARY 23 2017 
 
-Welcome back  
+Welcome back
+
+-----------------------
+Why Not Today ...I Really Thank You My Professor!!
+
+February 2017 Tuesday  
